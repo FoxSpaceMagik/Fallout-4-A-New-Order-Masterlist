@@ -102,5 +102,5 @@
 ❤❤❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤❤
 
 
-- [ ] SUBSCRIBE! (pretty please :3) :ringed_planet::fox_face::stars::rocket::star::milky_way:
+- [ ] [SUBSCRIBE! (pretty please :3)](https://www.youtube.com/@FoxSpaceMagik) :ringed_planet::fox_face::stars::rocket::star::milky_way:
 
