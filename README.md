@@ -4,6 +4,7 @@
 
 ### MODS (*in no particular order*)
 
++ [Multiple Followers] (https://www.nexusmods.com/fallout4/mods/24081)
 + [Lots More Facial Hair](https://www.nexusmods.com/fallout4/mods/10746)
 + [Kerberos Panzer Cop Jin Roh The wolf](https://www.nexusmods.com/fallout4/mods/16476)
 + [Fallout London - Luger](https://www.nexusmods.com/fallout4/mods/45651)
